@@ -1,5 +1,5 @@
 # qualia
-The new way of connecting post-2020
+The new way of human connection after 2020
 
 Qualia is that ineffable human experience that can't be described in words, or accounted for by science - it's the experience of an awe-inspiring sunset, the enchantment of listening to a concert pianist, the ecstasy of dance, the exquisite taste of wine, the rapturous appreciation of the cosmos, the the wonder of falling in love, or the smell from a log fire on Christmas morning...
 
