@@ -13,11 +13,9 @@ As many of our old ways of living and working are no longer viable, we'll see ma
 What if there's a better way of living and working, a better way of meeting our fundamental human needs of connection, belonging, and tasting all of life's expansive and playful possibilities.
 
 ### Qualia is...
-*Qualia is the human experience of connection.
-
-*Qualia combines physical and online spaces to connect with others, creating the conditions which are best suited for the type of connection.
-
-*Qualia is also a philosophy for interbeing - providing curated experiences in the best possible setting for convivial and purposful social connections.
+* Qualia is the human experience of connection.
+* Qualia combines physical and online spaces to connect with others, creating the conditions which are best suited for the type of connection.
+* Qualia is also a philosophy for interbeing - providing curated experiences in the best possible setting for convivial and purposful social connections.
 
 ### QualiaPods:
 QualiaPods are modular spaces for connecting people in convivial settings.  Imagine a space, such as an industrial unit, a repurposed office or a repurposed high street department store which is fillied with uniqueliy decorated, air-contidioned, sound-proofed pods, furnished in the way you want for the purposes of whatever gathering you're having.
