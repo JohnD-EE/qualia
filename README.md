@@ -7,7 +7,7 @@ Qualia is that ineffable human experience that can't be described in words, or a
 
 But maybe we were heading for change anyway, a great turning, and Covid was just the catalyst. One consequence of humanity's relentless industrial and technological advances has been that we've lost the essence of what binds us together to give our lives meaning. We've become disconnected from nature, disconnected from each other and communities, disconnected from our work, and disconnected from ourselves. Isolation, loneliness, alienation, despair, and depression were already a symptom of modern life as we were all racing along in our servitude to the economic treadmill.
 
-As many of our old ways of living and working are no longer viable, we'll see many businesses fail, as our fundamental models of living and work need a rethink.
+As many of our old ways of living and working are no longer viable, we'll see many businesses fail, as our fundamental models of living and work need a rethink. Offices, meetings and social events of the pre-2020 world will never return in quite the same way. We can do so much better... 
 
 #### Beyond 2020:
 What if there's a better way of living and working, a better way of meeting our fundamental human needs of connection, belonging, and tasting all of life's expansive and playful possibilities.
