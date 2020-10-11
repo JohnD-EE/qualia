@@ -1,5 +1,5 @@
 # qualia
-The new way of human connection after 2020
+The new way to create meaningful human connections after 2020
 
 Qualia is that ineffable human experience that can't be described in words, or accounted for by science - it's the experience of an awe-inspiring sunset, the enchantment of listening to a concert pianist, the ecstasy of dance, the exquisite taste of wine, the rapturous appreciation of the cosmos, the the wonder of falling in love, or the smell from a log fire on Christmas morning...
 
@@ -30,7 +30,7 @@ During the evenings and into the early hours of the morning the QualiaPods can b
 * How about a QualiaPod set up as a Poker or roullette table? Or remotely curated whisky tasting event against views of the Scottish Highlands and folk music. Perhaps you're a musician and want a relaxed Qualia Pod, already set up with an electronic drum kit, guitars and effects peddles, ready to jam with?
 * A QualiaPod may be customised for just two people having a quiet evening together or a group of 10 relaxing in a chill-out zone after the night club closes.
 * Perhaps you're a YouTuber and want to use a QualiaPod to record your shows, set up with mics, recording equipment, green screens, or custom backgrounds.
-* You could be an author, or a speaker, addressing people in multiple QualiaPods all over the country participating via monitors of virtual reality.
+* You could be an author, or a speaker, or doing a product launch, addressing people in multiple QualiaPods all over the country participating via monitors of virtual reality.
 * There could even be pop-up QualiaPods, as shipping containers or yurts with camp-fires during the summer, all adhering to the aim of giving the optimal Qualia Experience.
 
 The QualiaPod experience would be accompanied by a website and app, allowing you to book and customise your experience online, choosing from a range of default configurations and curated experiences, or creating your own from a pick-and-mix selection. But they're all cosy and functional where the emphasis is on the human experience of finding connection and meaning.
