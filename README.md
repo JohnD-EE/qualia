@@ -22,7 +22,7 @@ QualiaPods are modular spaces for connecting people in convivial settings.  Imag
 
 During the daytime, the Qualia Pods will be mostly used for business meetings, comfy chairs, monitors, whiteboards, and coffees.  A functional space to get things done and if you want QualiaCurator to facilitate or mediate a meeting, then a remote or onsite curator can be arranged to ensure the optimal experience for all...
 
-During the evenings and into the early hours of the morning the QualiaPods can be re-formatted for social events.
+During the evenings and into the early hours of the morning the QualiaPods can be re-formatted for social events, all with whatever tech, seating and furniture you need.
 
 #### QualiaPod uses:
 * Perhaps you'd like to equip a QualiaPod with a turntable, to have a get-together with friends listening to vinyls.
@@ -30,8 +30,9 @@ During the evenings and into the early hours of the morning the QualiaPods can b
 * How about a QualiaPod set up as a Poker or roullette table? Or remotely curated whisky tasting event against views of the Scottish Highlands and folk music. Perhaps you're a musician and want a relaxed Qualia Pod, already set up with an electronic drum kit, guitars and effects peddles, ready to jam with?
 * A QualiaPod may be customised for just two people having a quiet evening together or a group of 10 relaxing in a chill-out zone after the night club closes.
 * Perhaps you're a YouTuber and want to use a QualiaPod to record your shows, set up with mics, recording equipment, green screens, or custom backgrounds.
+* You could be an author, or a speaker, addressing people in multiple QualiaPods all over the country participating via monitors of virtual reality.
 * There could even be pop-up QualiaPods, as shipping containers or yurts with camp-fires during the summer, all adhering to the aim of giving the optimal Qualia Experience.
 
-The QualiaPod experience would be accompanied by a website and app, allowing you to book and customise your experience online, choosing from a range of default configurations and curated experiences, or creating your own from a pick-and-mix selection.
+The QualiaPod experience would be accompanied by a website and app, allowing you to book and customise your experience online, choosing from a range of default configurations and curated experiences, or creating your own from a pick-and-mix selection. But they're all cosy and functional where the emphasis is on the human experience of finding connection and meaning.
 
 Nothing will be the same again after 2020, this is our opportunity to create new, and better ways of coming together as human beings...
